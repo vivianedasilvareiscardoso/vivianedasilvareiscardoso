@@ -8,4 +8,4 @@
 - 📫 Como entrar em contato comigo: pelo zap ou na escola e pelo e-manil
 - 😄 Pronomes: menina
 - ⚡ Curiosidade: n tenho ideia
-  ![] (https://tenor.com/pt-BR/view/thurston-waffles-meow-scream-glowing-eyes-cat-gif-15740056)
+  ![](https://media1.tenor.com/m/F94FJukrCuwAAAAd/mad-mat-cat.gif)
